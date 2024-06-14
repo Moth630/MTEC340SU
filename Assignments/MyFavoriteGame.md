@@ -5,3 +5,6 @@
 
 
 ![img](https://upload.wikimedia.org/wikipedia/en/b/b3/Mgs3box.jpg)
+
+<p>Similar games:</p>
+<p>[Metal Gear Solid: Peace Walker](https://www.emulatorgames.net/roms/playstation-portable/metal-gear-solid-peace-walker/)</p>
